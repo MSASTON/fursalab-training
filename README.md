@@ -1,0 +1,2 @@
+# fursalab-training
+THANKS GOD
